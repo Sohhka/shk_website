@@ -11,6 +11,9 @@ I am not doing any help related to the source.
 
 You can join me on my discord (RP Server):
 / * Copyright .Sohhka
+
 / * Made by .Sohhka
+
 / * My Discord: https://discord.gg/vam4A2n
+
 / * .Sohhka#8888
