@@ -10,6 +10,7 @@ Quick little video from the site: https://gyazo.com/49f161b09ee6199d73da1c38a395
 I am not doing any help related to the source.
 
 You can join me on my discord (RP Server):
+
 / * Copyright .Sohhka
 
 / * Made by .Sohhka
