@@ -6,6 +6,7 @@ Please leave all the credit on my behalf!
 You can use this resource for yourself, but it is forbidden to sell it! Legal proceedings will take place.
 
 Quick little video from the site: https://gyazo.com/49f161b09ee6199d73da1c38a395e82d
+The website is not completely finished, I'll let you finish it yourself.
 
 I am not doing any help related to the source.
 
